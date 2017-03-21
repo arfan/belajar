@@ -1,1 +1,3 @@
-"# belajar" 
+# belajar
+
+[belajar sholat](sholat.md)
