@@ -6,7 +6,11 @@
 
 [CARA MANDI JUNUB RASULULLAH SAW - USTADZ ADI HIDAYAT](https://www.youtube.com/watch?v=hN3Xpwosrek)
 
-## sifat sholat nabi
+## niat sholat
 
-[FIQIH SHALAT “Sifat Sholat Nabi Sallallahu Alayhi WaSallam“ ¦ Ustadz Adi Hidayat Lc, MA ](https://www.youtube.com/watch?v=MsKq1czjACg)
+[Apakah Niat Dalam Shalat Harus Dilafadzkan? - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=hAGWNYh0bCk)
+
+## takbiratul ihram
+
+[Tata Cara Takbiratul Ihram dalam Shalat - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=W7BJB_kOFb8)
 
