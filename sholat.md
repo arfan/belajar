@@ -6,6 +6,10 @@
 
 [CARA MANDI JUNUB RASULULLAH SAW - USTADZ ADI HIDAYAT](https://www.youtube.com/watch?v=hN3Xpwosrek)
 
+## berdiri dalam sholat
+
+[Tata Cara Berdiri dalam Shalat - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=HzsyuQd6LPk)
+
 ## niat sholat
 
 [Apakah Niat Dalam Shalat Harus Dilafadzkan? - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=hAGWNYh0bCk)
