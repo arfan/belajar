@@ -1,6 +1,6 @@
 ## Wudhu
 
-[Tata Cara Menyempurnakan Wudhu - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=WiluRYCucMo)
+[Fiqh Shalat "Wudhu" - Ustadz Adi Hidayat, Lc., MA.](https://www.youtube.com/watch?v=z6mWfsmqnRs)
 
 ## Mandi wajib
 
