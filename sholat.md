@@ -16,5 +16,5 @@
 
 ## Takbiratul Ihram
 
-[Tata Cara Takbiratul Ihram dalam Shalat - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=W7BJB_kOFb8)
+[Tata Cara Takbiratul Ihram dalam Shalat - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=uGudVOah6qY)
 
