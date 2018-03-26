@@ -18,3 +18,6 @@
 
 [Tata Cara Takbiratul Ihram dalam Shalat - Ustadz Adi Hidayat, Lc, MA](https://www.youtube.com/watch?v=uGudVOah6qY)
 
+## Ruku, Sujud
+
+[Cara Ruku, Sujud, Sesuai Sunnah (Lengkap) | Ustad Adi Hidayat,lc,Ma](https://www.youtube.com/watch?v=TbS0V5g0USs)
